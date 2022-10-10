@@ -1,4 +1,4 @@
-- 👋 Hullo-Hi! I’m @nancyalice
+- 👋 Hullo-Hi! I’m @nancy._.alice
 - 🗺 I like maps
 - 😃 I’m currently learning to code itself!
 
